@@ -1,0 +1,1 @@
+My name is Shriyans and this is where I upload Discounted Cash Flow (DCF) Models of publically traded American and Canadian companies to find their fair stock price and utimately come to an investment decision. 
